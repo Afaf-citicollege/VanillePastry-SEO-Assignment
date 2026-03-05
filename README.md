@@ -1,0 +1,1 @@
+# VanillePastry-SEO-Assignment
